@@ -1,1 +1,0 @@
-# New-Quotes-App.github.io
